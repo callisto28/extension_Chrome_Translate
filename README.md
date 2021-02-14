@@ -1,0 +1,1 @@
+*** CREAT Extension Chrome for translate [FR]
